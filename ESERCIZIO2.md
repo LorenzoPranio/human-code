@@ -20,5 +20,5 @@
 7.1- NON CE L'HO?
 7.1.1- Inserisco le figurine nuove nell'album
 7.2- CE L'HO?
-7.2.1- La metto nella pila delle doppie
+7.2.1- La metto in un mazzetto apparte 
 8- Stilo una lista delle carte che ancora mi mancano per lo scambio di sabato
